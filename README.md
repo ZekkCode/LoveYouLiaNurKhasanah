@@ -1,4 +1,4 @@
-#💖Web Special For You,LNK💖
+# 💖Web Special For You,LNK💖
 
 Website ini saya buat sebagai bentuk penghargaan dan rasa sayang saya untuk **LNK**.  
 Proyek ini adalah cara saya mengekspresikan perasaan dan memberikan sesuatu yang spesial.
